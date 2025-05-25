@@ -1,2 +1,0 @@
-# KAYIT_F-NALL
-FİRSTWEEK
